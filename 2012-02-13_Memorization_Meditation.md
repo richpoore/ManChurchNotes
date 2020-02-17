@@ -18,7 +18,7 @@
 * Psalm 143:5
 
 Work was before sin. It is not bad.
-God called us to subdue the earth and have dominion over it. As men, we're action oriented.
+God called us to subdue the earth and have dominion over it. As men, we're action oriented, but it is important that we take time away from action to meditate.
 
 * God's given us a mind that's part of our physical body (that will die.)
     * we need to train it and bring it under subjection
