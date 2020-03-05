@@ -8,3 +8,4 @@ Definition
 * Training that molds the moral character
 * [Meditation & Memorization](2012-02-13_Memorization_Meditation.md)
 * [Prayer](2012-02-19_Prayer.md)
+* [Worship](2012-03-03_Worship.md)
